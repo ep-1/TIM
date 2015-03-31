@@ -36,3 +36,4 @@ He worked his ruler and his compass. He inferred. He deduced. He scrutinized the
 Ghostly, she stood in front of him and looked into his eyes. “I am here,” she said. “I am here. I want to touch you.” She pleaded: “Look at me!” But he would not see her; he only knew how to look at the outsides of things.
 He scrutinized the fall of an apple, the twisting of metal orbs hanging from a thread. Through these clues he would find the Princess, see her face. After an especially fervent night of tinkering, he kneeled behind a bunker in the desert; he held a piece of welder's glass up to his eyes and waited.
 On that moment hung eternity. Time stood still. Space contracted to a pinpoint. It was as though the earth had opened and the skies split. One felt as though he had been privileged to witness the Birth of the World…¹
+Someone near him said: “It worked.”
