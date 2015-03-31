@@ -18,3 +18,4 @@ He felt on his trip that every place stirs up an emotion, and every emotion invo
 Immediately Tim walked out his door, the next morning, toward whatever the new day held. He felt something like optimism.
 She never understood the impulses that drove him, never quite felt the intensity that, over time, chiseled lines into his face. She was never quite close enough to him — but he held her as though she were, whispered into her ear words that only a soul mate should receive.
 Over the remnants of dinner, they both knew the time had come. He would have said: “I have to go find the Princess,” but he didn't need to. Giving a final kiss, hoisting a travel bag to his shoulder, he walked out the door.
+Through all the nights that followed, she still loved him as though he had stayed, to comfort her and protect her, Princess be damned.
