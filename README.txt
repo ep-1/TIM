@@ -40,3 +40,4 @@ Someone near him said: “It worked.”
 Someone else said: “Now we are all sons of bitches.”
 She stood tall and majestic. She radiated fury. She shouted: “Who has disturbed me?” But then, anger expelled, she felt the sadness beneath; she let her breath fall softly, like a sigh, like ashes floating gently on the wind.
 She couldn't understand why he chose to flirt so closely with the death of the world.
+The candy store. Everything he wanted was on the opposite side of that pane of glass. The store was decorated in bright colors, and the scents wafting out drove him crazy. He tried to rush for the door, or just get closer to the glass, but he couldn't. She held him back with great strength. Why would she hold him back? How might he break free of her grasp? He considered violence.
