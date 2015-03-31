@@ -38,3 +38,4 @@ He scrutinized the fall of an apple, the twisting of metal orbs hanging from a t
 On that moment hung eternity. Time stood still. Space contracted to a pinpoint. It was as though the earth had opened and the skies split. One felt as though he had been privileged to witness the Birth of the World…¹
 Someone near him said: “It worked.”
 Someone else said: “Now we are all sons of bitches.”
+She stood tall and majestic. She radiated fury. She shouted: “Who has disturbed me?” But then, anger expelled, she felt the sadness beneath; she let her breath fall softly, like a sigh, like ashes floating gently on the wind.
