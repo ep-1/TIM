@@ -1,3 +1,4 @@
 Tim is off on a search to rescue the Princess. She has been snatched by a horrible and evil monster.
 This happened because Tim made a mistake.
 Not just one. He made many mistakes during the time they spent together, all those years ago. Memories of their relationship have become muddled, replaced wholesale, but one remains clear: the Princess turning sharply away, her braid lashing at him with contempt.
+He knows she tried to be forgiving, but who can just shrug away a guilty lie, a stab in the back? Such a mistake will change a relationship irreversibly, even if we have learned from the mistake and would never repeat it. The Princess's eyes grew narrower. She became more distant.
