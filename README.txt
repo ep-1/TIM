@@ -39,3 +39,4 @@ On that moment hung eternity. Time stood still. Space contracted to a pinpoint. 
 Someone near him said: “It worked.”
 Someone else said: “Now we are all sons of bitches.”
 She stood tall and majestic. She radiated fury. She shouted: “Who has disturbed me?” But then, anger expelled, she felt the sadness beneath; she let her breath fall softly, like a sigh, like ashes floating gently on the wind.
+She couldn't understand why he chose to flirt so closely with the death of the world.
