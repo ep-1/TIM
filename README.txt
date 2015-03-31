@@ -9,3 +9,4 @@ All those years ago, Tim had left the Princess behind. He had kissed her on the 
 For a long time, he thought they had been cultivating the perfect relationship. He had been fiercely protective, reversing all his mistakes so they would not touch her. Likewise, keeping a tight rein on her own mistakes, she always pleased him.
 But to be fully couched within the comfort of a friend is a mode of existence with severe implications. To please you perfectly, she must understand you perfectly. Thus you cannot defy her expectations or escape her reach. Her benevolence has circumscribed you, and your life's achievements will not reach beyond the map she has drawn.
 Tim needed to be non-manipulable. He needed a hope of transcendence. He needed, sometimes, to be immune to the Princess's caring touch.
+Off in the distance, Tim saw a castle where the flags flutter even when the wind has expired, and the bread in the kitchen is always warm. A little bit of magic.
