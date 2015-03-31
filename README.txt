@@ -21,3 +21,4 @@ Over the remnants of dinner, they both knew the time had come. He would have sai
 Through all the nights that followed, she still loved him as though he had stayed, to comfort her and protect her, Princess be damned.
 Perhaps in a perfect world, the ring would be a symbol of happiness. It's a sign of ceaseless devotion: even if he will never find the Princess, he will always be trying. He still will wear the ring.
 But the ring makes its presence known. It shines out to others like a beacon of warning. It makes people slow to approach. Suspicion, distrust. Interactions are torpedoed before Tim can open his mouth.
+In time he learns to deal with others carefully. He matches their hesitant pace, tracing a soft path through their defenses. But this exhausts him, and it only works to a limited degree. It doesn't get him what he needs.
