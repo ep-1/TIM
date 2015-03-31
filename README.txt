@@ -15,3 +15,4 @@ Escaping, Tim walked in the cool air toward the university he'd attended after m
 Tim only felt relieved after the whole visit was over, sitting back home in the present, steeped in contrast: he saw how he'd improved so much from those old days.
 This improvement, day by day, takes him ever-closer to finding the Princess. If she exists — she must! — she will transform him, and everyone.
 He felt on his trip that every place stirs up an emotion, and every emotion invokes a memory: a time and a location. So couldn't he find the Princess now, tonight, just by wandering from place to place and noticing how he feels? A trail of feelings, of awe and inspiration, should lead him to that castle: in the future: her arms enclosing him, her scent fills him with excitement, creates a moment so strong he can remember it in the past.
+Immediately Tim walked out his door, the next morning, toward whatever the new day held. He felt something like optimism.
